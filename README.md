@@ -14,8 +14,3 @@
    GitHub username:  agilghifa21  
    NIM: 16319075  
    Fakultas: FITB   
-
-
-
-
-
